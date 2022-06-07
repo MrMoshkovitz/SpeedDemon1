@@ -1,0 +1,5 @@
+[Johnathan Levi](https://jonathanalevi.com/)
+[Johnathan Levi Twitter](https://twitter.com/entreprenewer)
+[How Different Groups Spend Their Day](https://archive.nytimes.com/www.nytimes.com/interactive/2009/07/31/business/20080801-metrics-graphic.html?_r=0)
+[Super Human Academy](https://superhumanacademy.com)
+[Course Bookmarks](https://drive.google.com/uc?export=download&id=0BwjoZY-nVy2lc3hJMDNFWWk4Ukk)
